@@ -6,13 +6,13 @@
 [https://ai4pin.com](https://ai4pin.com/)
 
 ### 第一期：
-链接: https://pan.baidu.com/s/1LVNjTj-0Pj_6wPbIVKsaow?pwd=ai4p 提取码: ai4p 
+链接: https://pan.baidu.com/s/1LVNjTj-0Pj_6wPbIVKsaow?pwd=ai4p
 
 ### 第二期：
-链接: https://pan.baidu.com/s/1UezaZc4d3eHvt1kOwGOUlg?pwd=ai4p 提取码: ai4p 
+链接: https://pan.baidu.com/s/1UezaZc4d3eHvt1kOwGOUlg?pwd=ai4p
 
 ### 第三期：
-链接: https://pan.baidu.com/s/1SICcL4KBmFoIrttYHoSwpw?pwd=ai4p 提取码: ai4p
+链接: https://pan.baidu.com/s/1SICcL4KBmFoIrttYHoSwpw?pwd=ai4p
 
 ### 第四期：
 #### 持续更新中...
