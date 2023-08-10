@@ -25,7 +25,5 @@
 ![image](https://github.com/ai4pin/ai4pin/assets/141907757/49c6a582-60d7-44f8-97d2-deff673a0ab4)
 
 
-## 不带水印原始视频 & 水印技术 请联系：加好友请备注 “视频”
-![image](https://github.com/ai4pin/ai4pin/assets/141907757/4664c7c0-e03b-4552-b2c4-dce1e17039bc)
 
 
