@@ -5,19 +5,22 @@
 ### 官方网站：
 [https://ai4pin.com](https://ai4pin.com/)
 
-### 第一期：
+### 第一期（2023-06-26）：
 链接: https://pan.baidu.com/s/1LVNjTj-0Pj_6wPbIVKsaow?pwd=ai4p
 
-### 第二期：
+### 第二期（2023-08-9）：
 链接: https://pan.baidu.com/s/1UezaZc4d3eHvt1kOwGOUlg?pwd=ai4p
 
-### 第三期：
+### 第三期（2023-08-10）：
 链接: https://pan.baidu.com/s/1SICcL4KBmFoIrttYHoSwpw?pwd=ai4p
 
-### 第四期：
+### 第四期（2023-08-14）：
 链接: https://pan.baidu.com/s/1ofIzt59f13aGmTLOYHgVMg?pwd=ai4p
 
-### 第五期：
+### 第五期（2023-08-20）：
+链接: https://pan.baidu.com/s/1xiwuQvFLbQWsbG-EVooo6g?pwd=ai4p
+
+### 第六期：
 #### 持续更新中...
 
 ## 加群请扫码：
