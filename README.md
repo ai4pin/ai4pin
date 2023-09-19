@@ -26,7 +26,10 @@
 ### 第七期（2023-09-11）：
 链接: https://pan.baidu.com/s/10VA5jx33fWNqOIJh3hwjug?pwd=ai4p
 
-### 第八期：
+### 第八期（2023-09-19）：
+链接: https://pan.baidu.com/s/1C7cChPPD2rOshEPU4pNDuQ?pwd=ai4p
+
+### 第九期：
 #### 持续更新中...
 
 ## 加群请扫码：
