@@ -32,7 +32,10 @@
 ### 第九期（2023-09-25）：
 链接: https://pan.baidu.com/s/1ItkjujNRpPbrXno1_oH7pQ?pwd=ai4p
 
-### 第十期：
+### 第十期（2023-10-16）：
+链接: https://pan.baidu.com/s/1ZK17A6iyCYnFJ6AIQpBxYw?pwd=ai4p
+
+### 第十一期：
 #### 持续更新中...
 
 ## 加群请扫码：
