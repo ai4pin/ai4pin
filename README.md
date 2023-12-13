@@ -6,39 +6,43 @@
 [https://ai4pin.com](https://ai4pin.com/)
 
 ### 第一期（2023-06-26）：
-链接: https://pan.baidu.com/s/1LVNjTj-0Pj_6wPbIVKsaow?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTQlQjglODAlRTYlOUMlOUYucmFyWlo=
 
 ### 第二期（2023-08-9）：
-链接: https://pan.baidu.com/s/1UezaZc4d3eHvt1kOwGOUlg?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTQlQkElOEMlRTYlOUMlOUYucmFyWlo=
 
 ### 第三期（2023-08-10）：
-链接: https://pan.baidu.com/s/1SICcL4KBmFoIrttYHoSwpw?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTQlQjglODklRTYlOUMlOUYucmFyWlo=
 
 ### 第四期（2023-08-14）：
-链接: https://pan.baidu.com/s/1ofIzt59f13aGmTLOYHgVMg?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTUlOUIlOUIlRTYlOUMlOUYucmFyWlo=
 
 ### 第五期（2023-08-20）：
-链接: https://pan.baidu.com/s/1xiwuQvFLbQWsbG-EVooo6g?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTQlQkElOTQlRTYlOUMlOUYucmFyWlo=
 
 ### 第六期（2023-08-28）：
-链接: https://pan.baidu.com/s/1ko3Wz_eS0zkNStKDORMJGg?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTUlODUlQUQlRTYlOUMlOUYoMjAyMy0wOC0yOCkucmFyWlo=
 
 ### 第七期（2023-09-11）：
-链接: https://pan.baidu.com/s/10VA5jx33fWNqOIJh3hwjug?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTQlQjglODMlRTYlOUMlOUYoMjAyMy0wOS0xMSkucmFyWlo=
 
 ### 第八期（2023-09-19）：
-链接: https://pan.baidu.com/s/1C7cChPPD2rOshEPU4pNDuQ?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTUlODUlQUIlRTYlOUMlOUYoMjAyMy0wOS0xOSkucmFyWlo=
 
 ### 第九期（2023-09-25）：
-链接: https://pan.baidu.com/s/1ItkjujNRpPbrXno1_oH7pQ?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTQlQjklOUQlRTYlOUMlOUYoMjAyMy0wOS0yNSkucmFyWlo=
 
 ### 第十期（2023-10-16）：
-链接: https://pan.baidu.com/s/1ZK17A6iyCYnFJ6AIQpBxYw?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTUlOEQlODElRTYlOUMlOUYoMjAyMy0xMC0xNikucmFyWlo=
 
 ### 第十一期：
-链接: https://pan.baidu.com/s/1NmKUd-tMcbUylsn-m3QH9A?pwd=ai4p
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTUlOEQlODElRTQlQjglODAlRTYlOUMlOUYoMjAyMy0xMS05KS5yYXJaWg==
 
 ### 第十二期：
+链接: thunder://QUFodHRwOi8vOC4xMzcuMTA0LjM3OjY2NzcvVmlkZW9aaXBzLyVFNyU4OCVCMSVFOCVBNyU4NiVFOSVBMiU5MSUyMC0lMjAlRTclQUMlQUMlRTUlOEQlODElRTQlQkElOEMlRTYlOUMlOUYoMjAyMy0xMi0xMSkucmFyWlo=
+
+
+### 第十三期：
 #### 持续更新中...
 
 ## 加群请扫码：
