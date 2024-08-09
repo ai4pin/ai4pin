@@ -2,9 +2,6 @@
 
 再也不用苦苦追寻视频分享的微信群
 
-### 官方网站：
-[https://ai4pin.com](https://ai4pin.com/)
-
 ### 第一期（2023-06-26）：
 链接: thunder://QUFodHRwczovL2dpdGh1Yi5jb20vYWk0cGluL2FpNHBpbi9yZWxlYXNlcy9kb3dubG9hZC9hbGxfdmVyc2lvbnMvdmlkZW9zX3YxLnJhclpa
 
