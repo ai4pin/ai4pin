@@ -43,7 +43,8 @@
 #### 持续更新中...
 
 ## 加群请扫码：
-![f28c888b6367c188ebc36411bbbeeae](https://github.com/ai4pin/ai4pin/assets/141907757/6d9d0e95-31c8-4db3-bf35-ea9929dd481d)
+![image](https://github.com/user-attachments/assets/52cc685b-6315-414f-933d-266267bfe90d)
+
 
 
 ## 打赏咖啡 & 解锁更多新奇妙世界：
